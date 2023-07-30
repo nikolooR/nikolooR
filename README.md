@@ -19,7 +19,8 @@
 ---
 
 ### Go back to work brah
-![zyzz-glasses-zyzz](https://github.com/nikolooR/nikolooR/assets/64870202/8d2413d0-9b72-4493-addd-81d209e6525b)
+
+![zyzz-glasses-zyzz](https://github.com/nikolooR/nikolooR/assets/64870202/e6289eff-ab42-49ba-8720-39141a4981dd)
 
 ---
 
